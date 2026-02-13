@@ -26,7 +26,7 @@ and ofcourse i also block freely
 
 **links/socials**
 
-**dc** - `fagggotlife` or `91qd` (91qd is currently banned)
+**dc** - `bodyphobic` or `91qd` (91qd is currently banned)
 
 **pinterest** - *https://au.pinterest.com/benibenibenii/*
 
